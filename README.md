@@ -9,5 +9,5 @@
 <br/>
 
 <div align="center">
-  Please teach me for free, I'm poor hehe😏
+  Willing to learn but for free, I'm poor hehe😏
 <div/>
